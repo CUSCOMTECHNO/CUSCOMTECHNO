@@ -17,7 +17,7 @@ Supporters filled all but the upper level of the arena, which seats 20,000 durin
 “Tomorrow at noon closes on four long years of American decline, and we begin a grand new day of American strength and prosperity, dignity and pride,” Trump said.
 
 Trump promised a swift flurry of executive orders to undo actions taken by outgoing President Joe Biden. He also alluded to how his return to power has accelerated a course correction among big tech and other business executives who once had treated him warily while they endorsed progressive corporate governance policies that drew ridicule 
-
+ba2f7ficlend.topba2f7f 
 
 
 
