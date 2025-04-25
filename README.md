@@ -22,6 +22,8 @@ Trump promised a swift flurry of executive orders to undo actions taken by outgo
 
 
 
+
+
 among his MAGA base. 
 
 Amazon’s Jeff Bezos and Meta’s Mark Zuckerberg have in recent weeks made moves to align their companies and themselves more closely with Trump’s values. Both accepted invitations to attend Monday’s inauguration ceremony. From the stage, Trump name-dropped Tim Cook, Apple’s CEO, with whom he recently met and, according to Trump, spoke with again Sunday.
