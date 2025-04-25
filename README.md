@@ -20,7 +20,7 @@ Trump promised a swift flurry of executive orders to undo actions taken by outgo
 
 
 
-
+ba2f7ffyinformation.ccba2f7f
 
 
 among his MAGA base. 
